@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate dexscreener sniper bot | simulation-mode + rug-pull-detection, the #1 dexscreener sniper bot. Includes simulation-mode and rug-pull-detection
 
 
 
